@@ -10,7 +10,7 @@
 - 📫 How to reach me **manojattri181@gmail.com**
 
 - 📄 My Resume 
-<a href="https://drive.google.com/file/d/1qDG8BO4wam3CmHtefOdrnDbvDbjHPxYR/view?usp=sharing" target="_blank" >ManojAttri_resume</a>
+<a href="https://drive.google.com/file/d/1buatEfRfe9HLR0SoSJ1VqhzBaAywIXWE/view?usp=sharing" target="_blank" >ManojAttri_resume</a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
